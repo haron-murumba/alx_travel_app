@@ -1,1 +1,2 @@
-soom will update this Readme
+soon i  will update this Readme
+and make it cool
